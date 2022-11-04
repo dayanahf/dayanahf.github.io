@@ -16,13 +16,13 @@ Hoje, depois de 4 anos aqui, acompanhando o que se passa também na nossa terra 
 
 Quando eu converso com meus familiares e amigos que estão no Brasil, eu vejo que o Brasil precisa mudar. Quando eu leio as notícias, sempre de fontes confiáveis, eu vejo que precisa mudar.
 
-Sinto-me profundamente triste ao saber que pessoas em torno das quais eu cresci, estão envolvidas em notícias falsas, assumindo comportamentos de uma seita, que eu jamais imaginei que se tornaria tão forte. 
+Sinto-me profundamente triste ao saber que pessoas em torno das quais eu cresci, estão envolvidas com notícias falsas, assumindo comportamentos de uma seita, que eu jamais imaginei que se tornaria tão forte. 
 
 Sinto-me triste por ver essas pessoas queridas tão manipuladas, repetindo mentiras e tão crentes nessas mentiras a ponto de brigar com todos que discordam das suas falas. De repente, por causa de uma crença, se transformaram em desconhecidos.
 
 Lembro-me das pessoas simples, vivendo na labuta, de sol a sol, esquecidos pelo mundo e pelos governos. Vizinhos... parentes... amigos...
 
-Querida pessoa, se você esteve nas nossas vidas e dividiu conosco algum momento feliz, lembre-se que lhe consideramos muito e lhe oferecemos aqui uma reflexão: 
+Querida pessoa, se você esteve nas nossas vidas e dividiu conosco algum momento feliz, lembre-se que a consideramos muito e oferecemos aqui uma reflexão: 
 
 Por tudo que conseguimos desde a nossa infância...  pelas casas de chão batido que quase já não existem mais... pelas crianças que puderam estudar... pelas oportunidades de emprego que foram surgindo... 
 
@@ -52,7 +52,7 @@ Se você não tiver condições de pesquisar na internet para descobrir, peça a
 
 A única forma de resolver isso é aprender. Ler bons textos, livros, artigos. Conversar com pessoas que possam ajudar. E se necessário, até mesmo se afastar de tudo por um tempo, para pensar. E também conversar pacificamente com pessoas da opinião contrária.
 
-É preciso aprender a ter a humildade de dizer que não se sabe tudo. Ninguém sabe tudo. Estamos aprendendo o tempo todo. E não há nada melhor do que, quando perguntamos a alguém uma coisa e essa pessoa diz com humildade: "eu não sei, mas posso me aprender sobre". Isso é uma qualidade admirável.
+É preciso aprender a ter a humildade de dizer que não se sabe tudo. Ninguém sabe tudo. Estamos aprendendo o tempo todo. E não há nada melhor do que, quando perguntamos a alguém uma coisa e essa pessoa diz com humildade: "eu não sei, mas posso aprender sobre". Isso é uma qualidade admirável.
 
 Pessoas extremamente convictas não são assim tão sabidas. A convicção impede fazer perguntas e com isso, fica-se limitado. E a limitação deixa as pessoas emburrecidas.
 
